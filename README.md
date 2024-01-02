@@ -1,4 +1,4 @@
-Hey there 👋🏽 I’m Aiden Tsai, a Data Analyst Professional ✨
+Hey there 👋🏽 I’m Aiden Tsai, a Data Analyst Professional 📊
 
 - I am a digital marketer specified in E-commerce transitioning to Data Analytics.
 - I am passionate about executing strategies through Data Analytics to make true changes for businesses.
